@@ -4,7 +4,8 @@ Album Version 2 (V2)
 
 Songs Versions V3(3D) & V4(360)
 
-Mantle of Light is a seven-track worship suite that confronts spiritual darkness, proclaims Christ’s restorative reign, and celebrates global praise. Musical styles range from acoustic-fiddle-led folk to heavy symphonic metal, plus world textures (sitar, tabla, balafon) and wordless choirs. Each track includes leader guidance and pastoral framing to steward sensitive themes responsibly.
+A cinematic, prophetic worship album blending symphonic orchestration, folk/world instruments, and hard-rock intensity. Themes center on Christ’s light, healing, deliverance, and global praise — moving between intimate devotional moments and full-orchestra/choir climaxes. Lyrics reference spiritual struggle, restoration, and global worship imagery; some songs use vivid prophetic metaphor and cultural musical textures.
+
 Track list
 
 Light of Christ — (Song 1) - 3D + 360D
